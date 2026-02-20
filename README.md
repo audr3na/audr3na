@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ffbdda&label=+🍩+)  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ffbdda&label=+🍩+)  
 ![68747470733a2f2f66696c65732e636174626f782e6d6f652f6f64636f76792e706e67 (1)](https://github.com/user-attachments/assets/a007d20a-3ec5-445e-9f22-45b88eadc2ec)
 # small byi ﹗ ໑  
   
