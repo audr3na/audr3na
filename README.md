@@ -8,13 +8,8 @@
 <img width="1271" height="81" alt="ehgmlj" src="https://github.com/user-attachments/assets/7fd45bcc-9ff3-422b-b218-31add80a3bcd" />ㅤ  
 
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=ffbdda&label=+🦴+)  
-<img width="735" height="545" alt="Untitled302_20251231021034" src="https://github.com/user-attachments/assets/c44ac770-b7ee-4c5d-9732-18def5c16ee7" />
-  
-ꕀ art by jeevawiiqq on tiktok ﹗ 
-
-  
-    
-# quick info ﹗ ໑  
+ 
+# small byi ﹗ ໑  
   
 ۶ৎ i'm very bad at talking 2 new ppl , but i love making friends ﹗    
   
@@ -23,6 +18,7 @@
 ۶ৎ almost always offtab so please w2i , i'll respond as soon as i notice ﹗  
 
 ۶ৎ try 2 stay away from topics involving religion , sex , or pop culture when talking 2 me ﹗  
+  
 ㅤ  
 <img width="1271" height="81" alt="lpfpkk" src="https://github.com/user-attachments/assets/6722c0da-2d74-4cd9-a7a0-9d58ffad2705" />
 
