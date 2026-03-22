@@ -34,7 +34,7 @@ $${\color{#c8f34b} audrena / sal / mangle}$$
 <div align=center>
 <details>
 <summary>$${\color{#66f20c} interests}$$</summary>
-sally face , dandys world , dollys factory , fnaf , jjk , danganronpa , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , crk , breaking bad / better call saul , cosmic princess kaguya , open to getting into more stufff ^_^
+sally face , dandys world , dollys factory , fnaf , jjk , danganronpa , ddlc , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , crk , breaking bad / better call saul , cosmic princess kaguya , open to getting into more stufff ^_^
 </details>
 </div>
 
