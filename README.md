@@ -3,7 +3,12 @@
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=000000&label=+🔋+) 
 
 </div>
- 
+
+<div align=center>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Iosevka+Charon+Mono&size=17&pause=1000&color=1CB13F&center=true&vCenter=true&width=435&lines=%22you+need+to+start+worrying+about+yourself+more.%22;%22.+.+.+i'm+much+more+than+my+technology.%22)](https://git.io/typing-svg)
+
+</div>
 <p align="center">
   <img src="https://i.postimg.cc/FRrJ315H/IMG_9341.gif" />
 </p>
