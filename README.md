@@ -1,12 +1,18 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=000000&label=+🕸+)  
-<!--
-Source - https://stackoverflow.com/a/12118349
-Posted by waldyr.ar, modified by community. See post 'Timeline' for change history
-Retrieved 2026-02-25, License - CC BY-SA 4.0
--->
+<div align=center>
+
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=000000&label=+🔋+) 
+
+</div>
+ 
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/banners/779113984522715166/934e54ee2aa8bba8e82e47f809e987d2.webp?size=1024" />
+  <img src="https://i.postimg.cc/FRrJ315H/IMG_9341.gif" />
 </p>
+<div align=center>
+
+$${\color{#c8f34b} audrena / sal / mangle}$$
+
+</div>
+WIP WIP WIP OK
 
 
