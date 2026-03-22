@@ -29,7 +29,7 @@ $${\color{#c8f34b} audrena / sal / mangle}$$
 <div align=center>
 <details>
 <summary>$${\color{#66f20c} interests}$$</summary>
-sally face , dandys world , dollys factory , fnaf , jjk , danganronpa , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , crk , breaking bad / better call saul , open to getting into more stufff ^_^
+sally face , dandys world , dollys factory , fnaf , jjk , danganronpa , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , crk , breaking bad / better call saul , cosmic princess kaguya , open to getting into more stufff ^_^
 </details>
 </div>
 
@@ -44,7 +44,7 @@ sally face , dandys world , dollys factory , fnaf , jjk , danganronpa , pkmn , m
 <div align=center>
 <details>
 <summary>$${\color{#39fa83} byii}$$</summary>
-im EXTREMELY awkward when interacting for the first time , BUT i grow out of that stage quickly if u enjoy talking to me . i also have really bad mental health issues and struggle with responding to others and / or putting effort into new friendships , but i like to make mutuals that i can c+h without rlly talking to . im almost always offtab or on my phone so if u wanna get my attention plz whisper me !! 
+im EXTREMELY awkward when interacting for the first time , BUT i grow out of that stage quickly if u enjoy talking to me . i also have really bad mental health issues and struggle with responding to others and / or putting effort into new friendships , but i like to make mutuals that i can c+h without rlly talking to . im usually offtab / on my phone so if u wanna get my attention plz whisper me !! 
 </details>
 </div>
 
