@@ -1,8 +1,14 @@
 <div align="center">
+ㅤ  
 
-profile visits
+  
+![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=cbb3ff&label=stalkrs)
 <img width="112" height="43" alt="tumblr_50933c8a6149fd273278b4ec700803a1_4982006e_1280_25_1_50" src="https://github.com/user-attachments/assets/57f62861-cbe9-44f6-b04f-d2c67efaa077" />
-follower count
+![GitHub followers](https://img.shields.io/github/followers/audr3na?style=plastic&label=followrs&labelColor=5b5b5b&color=ffb5df)
+
+ㅤ  
+ㅤ  
+
 
 ![image](https://64.media.tumblr.com/c875bf59230df084eea1664d1fb0b2c1/4ae708fa88fd6797-ac/s640x960/930b0a16913e3ba02bac6b0f16e70ef84d96c8b5.gifv)
 
@@ -30,36 +36,55 @@ $\color{color}{\textsf{i get vry nervous arnd new ppl , whch mkes me rlly dry}}$
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
       $\color{color}{\textsf{im 16 ( 3 . 18 ) , pangendr , n omniace}}$ <br>
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
-      $\color{color}{\textsf{sign my ata below ! }}$ <br>
+      $\color{color}{\textsf{ata coming back soon !}}$ <br>
 </th>
 </tr>
 </table>
 
-ata
+ata (wip)
 
-big div
+<img width="1548" height="50" alt="tumblr_b953dc97931b08c6ac157c252d2c9f46_919adc0a_2048" src="https://github.com/user-attachments/assets/9998d378-f82a-4728-a006-3fc9300808b7" />
+ㅤ  
 
-img align right
 
-dni
+<img align="right" width="375" height="375" src="https://media.discordapp.net/attachments/1488704842380738661/1512676376438898838/932780ffff14b4a5fb413dfdcd7a9db1-removebg-preview.png?ex=6a24f528&is=6a23a3a8&hm=8202dac3eb142f41ae579b47a08e3318c1bc620ffc1004b1d062b02871db7d64&animated=true">  
+
+
+ㅤ  
+
+⟢ dni . . .
 <table>
   <tr>
     <th>
-$\color{color}{\textsf{dni}}$ <br>
-$\color{col}{\textsf{dni}}$ <br>
-$\color{col}{\textsf{dni}}$ <br>
-$\color{col}{\textsf{dni}}$ <br>
-$\color{col}{\textsf{dni}}$ <br>
+<img width="20" height="20" alt="tumblr_1136d3419d93af2a8106da50050a8fb0_8141b421_75 (1)" src="https://github.com/user-attachments/assets/ad0da342-328d-4f18-8486-897bec959503" /> 
+$\color{color}{\textsf{pro / drk / comshp}}$ <br>
+      <img width="20" height="20" alt="tumblr_1136d3419d93af2a8106da50050a8fb0_8141b421_75 (1)" src="https://github.com/user-attachments/assets/ad0da342-328d-4f18-8486-897bec959503" /> 
+$\color{col}{\textsf{racist / ableist / sexist / homophobc}}$ <br>
+      <img width="20" height="20" alt="tumblr_1136d3419d93af2a8106da50050a8fb0_8141b421_75 (1)" src="https://github.com/user-attachments/assets/ad0da342-328d-4f18-8486-897bec959503" /> 
+$\color{col}{\textsf{those who frce their relign onto othrs}}$ <br>
+      <img width="20" height="20" alt="tumblr_1136d3419d93af2a8106da50050a8fb0_8141b421_75 (1)" src="https://github.com/user-attachments/assets/ad0da342-328d-4f18-8486-897bec959503" /> 
+$\color{col}{\textsf{13 and youngr / 20 and oldr}}$ <br>
+      <img width="20" height="20" alt="tumblr_1136d3419d93af2a8106da50050a8fb0_8141b421_75 (1)" src="https://github.com/user-attachments/assets/ad0da342-328d-4f18-8486-897bec959503" /> 
+$\color{col}{\textsf{constnt sex jokes / constntly mean as a joke}}$ <br>
 </th>
 </tr>
 </table>
-iwc
+⟢ iwc . . .
 <table>
   <tr>
     <th>
-$\color{color}{\textsf{iwc}}$
+      <img width="20" height="20" alt="tumblr_4286975c735f373f64d4a87e69371adb_ee95ed34_75" src="https://github.com/user-attachments/assets/ef54489d-caeb-48f8-8bf1-91b4337d5ee2" /> 
+$\color{color}{\textsf{murdr drones fndm ( uzi sexualizers )}}$ <br>
+      <img width="20" height="20" alt="tumblr_4286975c735f373f64d4a87e69371adb_ee95ed34_75" src="https://github.com/user-attachments/assets/ef54489d-caeb-48f8-8bf1-91b4337d5ee2" /> 
+$\color{color}{\textsf{forsakn / dandys wrld fndm}}$ <br>
     </th>
   </tr>
 </table>
+ㅤ  
+ㅤ  
+
+
+ㅤ  
+
 
 ![image](https://64.media.tumblr.com/c875bf59230df084eea1664d1fb0b2c1/4ae708fa88fd6797-ac/s640x960/930b0a16913e3ba02bac6b0f16e70ef84d96c8b5.gifv)
