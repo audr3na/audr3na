@@ -12,7 +12,7 @@
 
 ![image](https://64.media.tumblr.com/c875bf59230df084eea1664d1fb0b2c1/4ae708fa88fd6797-ac/s640x960/930b0a16913e3ba02bac6b0f16e70ef84d96c8b5.gifv)
 
-<img align="left" width="320" height="320" src="https://cdn.discordapp.com/attachments/1488704842380738661/1512677065714040975/35638962a7de3f94cdff7a5048216d58-removebg-preview_1.png?ex=6a24f5cc&is=6a23a44c&hm=682054f8b98e4c997a2f6b87a3d3e928afdfac08b019610b546b029efd3b4127&animated=true">
+<img align="left" width="320" height="320" src="https://www.image2url.com/r2/default/images/1781988552974-a1f91e0b-051e-4a7f-94eb-02e91ac9adc1.png">
 
   </br>
 
@@ -47,7 +47,7 @@ $\color{color}{\textsf{i get vry nervous arnd new ppl , whch mkes me rlly dry}}$
 ㅤ  
 
 
-<img align="right" width="375" height="375" src="https://media.discordapp.net/attachments/1488704842380738661/1512676376438898838/932780ffff14b4a5fb413dfdcd7a9db1-removebg-preview.png?ex=6a24f528&is=6a23a3a8&hm=8202dac3eb142f41ae579b47a08e3318c1bc620ffc1004b1d062b02871db7d64&animated=true">  
+<img align="right" width="375" height="375" src="https://www.image2url.com/r2/default/images/1781988599787-2b80e30e-b1fa-45bb-8a1f-aeb4a0e90a84.png">  
 
 
 ㅤ  
