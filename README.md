@@ -32,7 +32,7 @@ $\color{color}{\textsf{i get vry nervous arnd new ppl , whch mkes me rlly dry}}$
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
       $\color{color}{\textsf{i lov havng moots tht cud w me w/o talkng its vry cmfrting }}$ <br>
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
-      $\color{color}{\textsf{hvy intrsts rn r tbhk , dw , sally face , n da pastel goth style}}$ <br>
+      $\color{color}{\textsf{hvy intrsts rn r beastars , tbhk , sally face , n fortnite}}$ <br>
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
       $\color{color}{\textsf{im 16 ( 3 . 18 ) , pangendr , n omniace}}$ <br>
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
